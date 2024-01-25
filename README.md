@@ -1,0 +1,2 @@
+# gorselprogramlamafinal
+190517012BatıkanCobanoglu
